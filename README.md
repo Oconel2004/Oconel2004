@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Oconel2004
+- 👀 I’m interested in web and mobile developpement
+- 🌱 I’m currently learning mobile developpement
+- 💞️ I’m looking to collaborate on all type of project web or mobile
+- 📫 How to reach me ...
